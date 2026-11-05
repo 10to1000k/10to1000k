@@ -1,4 +1,4 @@
-# Amir Yousefi — YIMA
+# Amir Yousefi — 10to1000k
 
 **Builder & researcher.** *Learn. Build. Test.*
 Curious about everything. Serious about understanding.
